@@ -9,4 +9,4 @@
 ### 📬 如何聯絡我
 - ✉️ **Email:** [huangkinmen@gmail.com]
 - 📸 **IG:** [@huangkinmenX]
-<img width="1024" height="1536" alt="ChatGPT Image 2026年3月1日 上午11_27_26" src="https://github.com/user-attachments/assets/fe665586-d9cc-439f-ab76-82265e2fe3e4" />
+<img width="512" height="768" alt="ChatGPT Image 2026年3月1日 上午11_27_26" src="https://github.com/user-attachments/assets/fe665586-d9cc-439f-ab76-82265e2fe3e4" />
